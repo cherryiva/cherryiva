@@ -1,5 +1,11 @@
-## Hi there 👋
+everything here is made by me! 
 
+
+<img width="404" height="505" alt="image" src="https://github.com/user-attachments/assets/f580f19c-1a30-475b-a786-e3fd45d47d91" />
+
+<img width="333" height="417" alt="image" src="https://github.com/user-attachments/assets/dd974e46-b76e-4011-aac5-0e44e272de5b" />
+
+will add more soon 🥹
 <!--
 **cherryiva/cherryiva** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
