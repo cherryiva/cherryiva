@@ -11,7 +11,7 @@ i dont care about ints and dni, im way too lazy to write allat.
 
 Int if you want to but if i dislike something about you you're getting ignored
 
-thats al11!@!?@?
+thats all11!@!?@?
 <!--
 **cherryiva/cherryiva** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
