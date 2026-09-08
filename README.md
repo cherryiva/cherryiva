@@ -6,6 +6,12 @@ everything here is made by me!
 <img width="333" height="417" alt="image" src="https://github.com/user-attachments/assets/dd974e46-b76e-4011-aac5-0e44e272de5b" />
 
 will add more soon 🥹
+
+i dont care about ints and dni, im way too lazy to write allat.
+
+Int if you want to but if i dislike something about you you're getting ignored
+
+thats al11!@!?@?
 <!--
 **cherryiva/cherryiva** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
