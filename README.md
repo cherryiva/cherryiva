@@ -11,6 +11,13 @@ i dont care about ints and dni, im way too lazy to write allat.
 
 Int if you want to but if i dislike something about you you're getting ignored
 
+oh and the only ships i dislike are:
+
+kazuscara
+
+tuna
+
+please dont jump me i just dont like them 😖😖😖
 thats all11!@!?@?
 <!--
 **cherryiva/cherryiva** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
